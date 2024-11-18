@@ -1,0 +1,1 @@
+Heuristics are helpful, but become unnecessary guardrails when applied too broadly as all-or-nothing constructs.
