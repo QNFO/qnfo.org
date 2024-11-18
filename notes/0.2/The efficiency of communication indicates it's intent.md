@@ -1,0 +1,1 @@
+If it prioritizes the other person vs optimized for speed of one party. Here's a hint: if it feels awkward or rushed there's not mutual respect.
