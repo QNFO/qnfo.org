@@ -1,0 +1,1 @@
+![[../../pics/Screenshot_20240928_221256_Samsung Internet.jpg|Screenshot_20240928_221256_Samsung Internet]]
